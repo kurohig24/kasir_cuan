@@ -67,6 +67,6 @@ Aplikasi mencakup halaman: Login, Dashboard, POS, HPP Calculator, Stock & Recipe
 - Bisnis dengan kebutuhan manajemen stok bahan baku & perhitungan HPP otomatis
 
 ---
-JIKA BERMINAT BUSA HUBUNGI :
-whatsapp : 087743323205
-instagram : arulll.adami
+**JIKA BERMINAT BUSA HUBUNGI**
+**whatsapp-087743323205**
+**instagram-@arulll.adami**
